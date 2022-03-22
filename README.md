@@ -5,7 +5,7 @@
 
  other names you can call me ? 
 
-. glitter , booz , clay , Karl , frown , toby of ... puppet (maybe a trauma thing..) 
+. glitter , booz , clay , Karl , frown , toby or ... puppet (maybe a trauma thing..) 
 
 
 --- 
