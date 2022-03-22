@@ -34,5 +34,5 @@ BYF !! 🐾
 
 . I may joke about death or say "die" quite a bit , don't take me not replying to you personally I'm very easily distracted or detached myself from others for days so I'll reply when I can , pls don't trauma dump on me randomly.  
 
-. If you're -17 or 23+ DNI romaniccaly n especially sexually , don't lie about your age either. DONT be that type of person. It's disgusting. 
+. If you're -17 or 23+ DNI romantically n especially sexually , don't lie about your age either. DONT be that type of person. It's disgusting. 
  
