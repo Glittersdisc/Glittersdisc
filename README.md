@@ -5,7 +5,7 @@
 
  other names you can call me ? 
 
-. glitter , booz , clay , Karl , frown , toby or ... puppet (maybe a trauma thing..) 
+. glitter ,Toby, aero, puppet or frown :] 
 
 
 --- 
@@ -18,7 +18,7 @@ ABOUT ME !!
 
 LIKES !! 💟
 
-. dreamcore/Weirdcore , animals especially RACCOONS , playing roblox , frowns , plasters , soda/coke , discs , the color lime , any blue , dark red n purple . Taylor swift  , Tyler, the creator , FNAF , WILBURR , lovejoy , dsmp ccs .. lore streams or non lore streams,many duos/trios , the walten files , FNAF , monster drinks , glaive, ripped clothes , old fashion clothes , Neptune even though .. scared of wind , astrology , analogue horror , AHS , documentaries , books , pizza , the peaks of being a wallflower , dialtown , clowns , bugs except from moths , drawing , sonic , pitbull , some animes , strawberries n cherries , Rain , iced coffee !! 
+. dreamcore/Weirdcore , animals especially RACCOONS , playing roblox , frowns , plasters , soda/coke , discs , the color lime , any blue , dark red n purple . Taylor swift  , Tyler, the creator , FNAF , WILBURR , lovejoy , dsmp ccs .. lore streams or non lore streams,many duos/trios , the walten files , FNAF , monster drinks , glaive, ripped clothes , old fashion clothes , Neptune even though .. scared of wind , astrology , analogue horror , AHS , documentaries , books , pizza , the peaks of being a wallflower , dialtown , clowns , bugs except from moths , drawing , sonic , pitbull , some animes , strawberries n cherries , Rain , iced coffee, heartstopper !! 
 
 
 ------------
