@@ -11,7 +11,7 @@
 --- 
 ABOUT ME !! 🪶
 
-.infj , he/it/xe, trans . Neutral teams but more masc preferred , on the ace spect , unlabelled yet don't mind the gay/mlm team :D , ☼ Scorpio !! ☾ Cancer !! ↑ Pisces !! an adult !! both handed !! duck, bunny n raccoon boy! i kin the hell out of c!tommy , c!ranboo/ghostboo , c!quackity ,  c!george , c!karl , c!foolish , Oliver from dialtown , Jack walten n Sundrop .. n more from when I was younger .. yes I need help
+.infj , he/it/xe, trans . Neutral teams but more masc preferred , on the ace spect , unlabelled yet don't mind the gay/mlm team :D , ☼ Scorpio !! ☾ Cancer !! ↑ Pisces !! an adult !! both handed !! duck, bunny n raccoon boy! i kin the hell out of c!tommy , c!ranboo/ghostboo , c!quackity ,  c!george , c!karl , c!foolish , c!fundy, Oliver from dialtown , Jack walten n Sundrop .. n more from when I was younger .. yes I need help
 
 
 --------
