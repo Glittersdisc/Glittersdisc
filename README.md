@@ -5,7 +5,7 @@
 
  other names you can call me ? 
 
-. glitter ,Toby, aero, puppet or frown :] 
+. glitter ,Toby,Aero , puppet or frown :] 
 
 
 --- 
